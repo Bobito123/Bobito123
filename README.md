@@ -1,4 +1,4 @@
-- 👀 I’m interested in Pharmaceutical Produc representative partner in Nigeria 
+- 👀 I’m interested in Pharmaceutical Product representative partner in Nigeria 
 - 🌱 I’m currently learning Data Analysis and management 
 - 💞️ I’m looking to collaborate on with a manufacturer of pharmaceutical products or related products 
 - 📫 How to reach me by email azubikeuguru@gmail.com or multisouls@yahoo.com
